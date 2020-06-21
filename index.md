@@ -6,3 +6,7 @@ Tardar Sauce (April 4, 2012[1] – May 14, 2019), nicknamed Grumpy Cat, was an A
 * Hates everything
 * Likes being alone
 * Is dead
+
+Grumpy cat loves to give compliments
+> I looked up stupid in the dictionary.
+> They spelled your name right.
