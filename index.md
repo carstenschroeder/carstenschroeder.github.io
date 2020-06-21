@@ -10,3 +10,5 @@ Tardar Sauce (April 4, 2012[1] – May 14, 2019), nicknamed Grumpy Cat, was an A
 Grumpy cat loves to give compliments
 > I looked up stupid in the dictionary.
 > They spelled your name right.
+
+<img src="https://i.pinimg.com/474x/b7/d7/97/b7d79728f64b299159ca30bb0f6925de--grumpy-cat-meme-grumpy-kitty.jpg"/>
